@@ -1,2 +1,2 @@
 # EarthOnlineGameDailyRecord
-Record my human lift in earth
+Record my human life in earth
